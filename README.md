@@ -1,2 +1,7 @@
-# Manual-MySimsKingdom
-Become the royal wandolier and help the rest of the world in this AP manual!
+#  (AP Manual)
+[under construction]
+
+## What Are You Searching For?
+
+
+## Play Guide
